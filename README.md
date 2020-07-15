@@ -1,6 +1,6 @@
 # ChillerDragon
 
-![Banner](ChilliBanner.jpg)
+![Banner](https://raw.githubusercontent.com/ChillerDragon/ChillerDragon/master/ChilliBanner.jpg)
 
 > you are a 0.7 cultist
 
