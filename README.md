@@ -16,3 +16,8 @@
 > If you do not agree with the defaults, you use the wrong software
 
 [@ChillerDragon](https://github.com/ChillerDragon)
+
+
+> DDNet (Dustforce Discord Network) [..] DDNet is a modification of the popular game Dustforce
+
+ChatGPT
