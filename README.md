@@ -14,6 +14,18 @@
 
 ---
 
+> I'll give my green name away to sp someone
+
+[@Learath2](https://github.com/Learath2)
+
+---
+
+> gebasiert
+
+[@Learath2](https://github.com/Learath2)
+
+---
+
 > If you do not agree with the defaults, you use the wrong software
 
 [@ChillerDragon](https://github.com/ChillerDragon)
