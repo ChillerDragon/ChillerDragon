@@ -28,7 +28,7 @@
 
 > chiller u can be considered drunk always
 
-[@edg-l](https://github.com/edg.l)
+[@edg-l](https://github.com/edg-l)
 
 ---
 
