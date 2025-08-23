@@ -26,6 +26,12 @@
 
 ---
 
+> chiller u can be considered drunk always
+
+[@edg-l](https://github.com/edg.l)
+
+---
+
 > If you do not agree with the defaults, you use the wrong software
 
 [@ChillerDragon](https://github.com/ChillerDragon)
